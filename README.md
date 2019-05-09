@@ -1,2 +1,1 @@
-# CandyCode-Esbo-o-
-Aplicativo para a loja de doces
+Códigos postados no instagram! Espero que todos que acessem façam bom proveito!
